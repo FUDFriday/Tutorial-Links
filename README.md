@@ -16,3 +16,5 @@ Tutorial #8 - "Mixamo...bro" - https://x.com/FUDFriday/status/188294732113639470
 ![image](https://github.com/user-attachments/assets/a4bb1590-209d-4e25-ac1f-c4a13de6366f)
 Tutorial #9 - "Camera Rig Rails...and twerking Grails" - https://x.com/FUDFriday/status/1887914219691274305
 ![image](https://github.com/user-attachments/assets/31511fa0-5fae-4e62-8363-6ea79ed3986c)
+Tutorial #10 - "Mutants are INSANE" - https://x.com/FUDFriday/status/1908337226247004476
+![Tutorial_10_Mutants_Are_Insane](https://github.com/user-attachments/assets/9a667d13-c7cd-481f-963d-c2ff0cb4f3b9)
